@@ -5,3 +5,4 @@
 -->
 If you 깝치면?
 You DIE
+discord ip : devblackzero
